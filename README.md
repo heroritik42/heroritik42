@@ -1,7 +1,7 @@
 # 👋 Welcome to My GitHub Profile!  
 
 Hi, I'm **Ritik Kumar Pandit** ([@Mr-Ritik](https://github.com/heroritik42))  
-🚀 Developer | 🎮 Game Hacker | 💻 Innovator  
+🚀 Developer | 👹 Grey Hat Hacker | 💻 Innovator  | 🌌 Cyber Security | 🛠️ IT Specialist 🔧 | 🔒 Security Specialist 🛡️
 
 ---
 
